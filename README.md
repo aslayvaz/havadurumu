@@ -7,5 +7,4 @@ Detaylı bilgi için:
 
 http://developer.worldweatheronline.com/
 
-
-
+Aslı <3 Ahmet
